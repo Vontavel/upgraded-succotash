@@ -1,0 +1,1 @@
+The phrase "upgraded-succotash" has no single, widely recognized meaning. It is most likely a fabricated, nonsense term or a play on words, possibly referring to a new or improved version of the classic vegetable dish. 
